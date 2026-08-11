@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 About Me: I am Chaithanya Kumar K
 B.E. Cyber Security Student @ Cambridge Institute of Technology<br>
 
 
